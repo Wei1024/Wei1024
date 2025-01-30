@@ -21,6 +21,6 @@ I specialize in:
 - 💻 **Building WeiToGo** – A consulting service focused on **Digital business efficiency solutions**  
 
 ### 📫 Connect with Me  
-🔗 [LinkedIn](https://www.linkedin.com/in/wei-hua-huang/)  
+🔗 [LinkedIn](https://www.linkedin.com/in/wei-hua-huang-1318a4203)  
 🌐 [WeiToGo Website] (Coming soon!)  
 📧 Contact: **[weihua.huang24@gmail.com]**

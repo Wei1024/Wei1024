@@ -22,5 +22,5 @@ I specialize in:
 
 ### 📫 Connect with Me  
 🔗 [LinkedIn](https://www.linkedin.com/in/wei-hua-huang-1318a4203)  
-🌐 [WeiToGo Website] (Coming soon!)  
+🌐 [WeiToGo Website] (https://weitogo.ca/)  
 📧 Contact: **[weihua.huang24@gmail.com]**
